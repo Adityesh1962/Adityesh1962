@@ -17,10 +17,10 @@
 - ✍️ Content creation related to technology and finance
 
 ## 📫 How to reach me...
-- 📧 Email: [your-email@example.com]
-- 🐦 Twitter: [@yourtwitterhandle](https://twitter.com/yourtwitterhandle)
+- 📧 Email: [er.adityesh@gmail.com]
+- 🐦 Linkedin : [www.linkedin.com/in/adityesh-singh-9981aa293)
 
 ## 😄 Pronouns: He/Him
 
 ## ⚡ Fun fact:
-I am passionate about merging technology with finance, and I love exploring how AI can revolutionize trading strategies! 🚀
+I am passionate about merging technology with finance and love exploring how AI can revolutionize trading strategies! 🚀
